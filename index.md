@@ -1,4 +1,4 @@
-## :school: University of Washington Bothell 💻 Computer Science and Software Engineering
+## 🏫 University of Washington Bothell 💻 Computer Science and Software Engineering
 
 Being in such an unique time of the human history, learning, preparing for my career in Tech can be very difficult and challenging. But I’m very excited to learn more, get out of my comfort zone, and enjoy the process. I believe the harder it gets, the more I learn.
 
