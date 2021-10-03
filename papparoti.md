@@ -1,29 +1,29 @@
 
 
-## Papparoti
+## Papparoti 🍞
 
 _[An Original Recipe from Sukie's Kitchen](https://youtu.be/bY7ViF7LAfA)_
 
 ### Ingredient _(for 10 pieces)_: 
 
 __The Pastry__ :
-  * [ ] 320g sifted Bread Flour
-  * [ ] 5g Instant Yeast
-  * [ ] 4g Salt
-  * [ ] 40g Sugar
-  * [ ] 170ml Unswetended Milk 
-  * [ ] 1 Large Egg
-  * [ ] 45g Unsalted Butter (room temperature)
-  * [ ] A bowl of hot water
+  [ ]  320g sifted Bread Flour
+  [ ]  5g Instant Yeast
+  [ ]  4g Salt
+  [ ]  40g Sugar
+  [ ]  170ml Unswetended Milk 
+  [ ]  1 Large Egg
+  [ ]  45g Unsalted Butter (room temperature)
+  [ ]  A bowl of hot water
 
 __The Coffee Topping:__
-  * [ ] 1tbs Instant Coffee
-  * [ ] 20ml Hot Water
-  * [ ] 60g Unsalted Butter (room temperature)
-  * [ ] 50g Icing Suger
-  * [ ] 1 Large Egg
-  * [ ] 70g Cake Flour
-  * [ ] ½tsp Cocoa Powder
+  [ ] 1tbs Instant Coffee
+  [ ] 20ml Hot Water
+  [ ] 60g Unsalted Butter (room temperature)
+  [ ] 50g Icing Suger
+  [ ] 1 Large Egg
+  [ ] 70g Cake Flour
+  [ ] ½tsp Cocoa Powder
 
 ### Let's get started
 
