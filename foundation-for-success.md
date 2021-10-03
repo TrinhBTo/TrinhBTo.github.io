@@ -1,4 +1,4 @@
-# Foundation for Success :crocodile:
+# Foundation for Success 🐊
 _as a Peer Mentor and Office Assistant, Sept 2019 - Dec 2020_
 
   The program is designed to connect new international students with campus resources, improve communication with staff and classmates,
