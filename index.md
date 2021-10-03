@@ -6,7 +6,7 @@ Being in such an unique time of the human history, learning, preparing for my ca
 
 ### Organization
 
-I worked for Foundation for Success for over a year during my time in Green River College. The journey I have with FFS was full of joy and I growth a lot as a person. 
+I worked for Foundation for Success for over a year during my time in Green River College. The journey I have with FFS was full of joy and I grow a lot as a person. 
 
 _Learn more about [Foundation for Success.](foundation-for-success)_
 
